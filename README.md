@@ -1,1 +1,0 @@
-# ARTEROID22vhjg1z
